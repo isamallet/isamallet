@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @isamallet
+- 👀 I’m interested in learn industrial automation
+- 🌱 I’m currently learning C+
+- 📫 How to reach me isamallet_@hotmial.com or 41 996820823
